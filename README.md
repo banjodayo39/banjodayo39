@@ -1,6 +1,6 @@
 ###  I'm Dayo. 
 
 - 💻 Software Engineer 
-- 👨🏾‍💻 Currently working on graphics tools for content creator
+- 👨🏾‍💻 Passionate about graphics, media and argumented reality
 - 🎵 Music lover 
 - 🤩 Nice to meet you!
